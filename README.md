@@ -1,5 +1,5 @@
 # TheRedSquareHatesToBeOnline
-You are a red square, called Redsquare and you hate your life (womans fault obviously)
+You are a red square, called Redsquare and you hate your life (womans fault obviously).
 Therefor you try to escape from a planet called online. 
 You have to climb to a new world.
 But you your brother green square hates you and enjoys seeing you get recjected from woman. 
@@ -21,8 +21,8 @@ Cause why not ...
 # So some final things to say
 Thank you for making this awesome challenge!
 Im not good at developing or programming but i had fun making that game.
-Thing is I just heard about it like 4 days ago
-03.09.2018
+Thing is I just heard about it like 4 days ago 
+(03.09.2018).
 So next year i will definitely take part again.
 
 # Have all a good time and much love from me <3
