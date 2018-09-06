@@ -7,7 +7,7 @@ So he sends the online police to catch you.
 Yes the online police are pink triangles.
 Why certainly!
 
-AND No this story does not relate to me in any way, think about it, is our world called ONLINE????
+AND no this story does not relate to me in any way, think about it, is our world called ONLINE????
 
 # OMG I CANT MOVE? HOW SHOULD I ESCAPE ... IF I CANT MOVE!!!
 Use the arrow keys "left" and "right", to move left and right.
